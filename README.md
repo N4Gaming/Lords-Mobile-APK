@@ -1,2 +1,2 @@
-# Lords-Mobile-APK
-Download Lords Mobile APK
+# Lords-Mobile-MAC
+Download Lords Mobile for MAC
